@@ -1,2 +1,0 @@
-# hdr
-My HDR manuscript
